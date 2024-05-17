@@ -8,7 +8,7 @@ Meu nome é Luiz Guilherme
 
 # Você entrar em contato comigo 👀
 
- georgepig820@gmail.com
+ luizguilhermeribeiro80@gmail.com
  luiz.ghuii.sr058
 
 
